@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AiyappaMM
+- 👀 I’m a Technical Recruiter working with Google India.
+- 🌱 I’m currently trying to learn how the great IT minds work
+- 💞️ I’m l looking at enhancing my IT knowledge
+- 📫 Reach me on 7207902184
